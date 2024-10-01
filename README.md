@@ -3,7 +3,7 @@ Eu sou a Eduarda de Azevedo Costa
 
 Eu estou na primeira serie do EM
 
-Utilizo seste espaço para compartilhar projetos
+Utilizo este espaço para compartilhar projetos
 
 **Você pode entrar em contato comigo 📫** 
 
